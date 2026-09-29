@@ -1,4 +1,4 @@
-## Hi there 👋
+ok.... yea im a coal sona ever since 2024?? birthday march 21 ... styles-> y2k
 
 <!--
 **coal-bones/Coal-bones** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
